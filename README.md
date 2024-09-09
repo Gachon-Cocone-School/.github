@@ -1,3 +1,6 @@
+<img width="945" alt="image" src="https://github.com/user-attachments/assets/b0f8c52f-0272-4237-a22c-1bbe4c74dd5c">
+
+
 # Gachon Cocone School
 
 Gachon Cocone School is part of the Startup College at Gachon University, which operates under the motto, **"A New Path to Change the World through Entrepreneurship."**
